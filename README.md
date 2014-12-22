@@ -35,14 +35,14 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Certaine English verses penned by Dauid Gwyn, who for the space of eleuen yeeres and ten moneths was
+
 #####Body#####
+Certaine Engliſh verſes, preſented to the Queenes moſt excellent Maieſtie, in the Parke at Saint Iam
+    _ Certaine Engliſh verſes, preſented to the Queenes moſt excellent Maieſtie, in the Parke at Saint Iames, on Sunday the xviii. of Auguſt 1588.
 
-1. Certaine Engliſh verſes, preſented to the Queenes moſt excellent Maieſtie, in the Parke at Saint Iames, on Sunday the xviii. of Auguſt 1588.
+    _ An other at the ſame time deliuered to her Maieſtie by DAVID GWYN.
 
-1. An other at the ſame time deliuered to her Maieſtie by DAVID GWYN.
-
-1. An other preſented to her Maieſtie by Dauid Gwyn in commendation of Sir Francis Drake.
+    _ An other preſented to her Maieſtie by Dauid Gwyn in commendation of Sir Francis Drake.
 
 **Types of content**
 
